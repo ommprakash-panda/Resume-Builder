@@ -1,2 +1,2 @@
-# ଜଗନ ସହ ବୁବୁନ ର ଶୁଭ ବିବାହ
+#Minor Project
 'Minor Project' | Final Year
